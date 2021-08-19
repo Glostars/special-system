@@ -17,6 +17,6 @@ brain is in the development stages and you are not
 able to stimulate it, (such as a abused child not 
 allowed to leave her room) then it will cause you to 
 hallucinate. That was the answer I had searched for
- and accepted. Then one night 
+ and accepted. Then one night,as a adult,
 my mind was forever changed. There is something to
- take note in lightness and darkness.
+ consider in the light/dark.
